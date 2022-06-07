@@ -7,4 +7,5 @@
 	yang telah merilis kotaknya ini adalah kotak yang sangat bagus untuk latihan sebagai pentester
 	sekali lagi saya berterima kasih :)
 	
-	oke buat teman 
+	oke buat teman yang pengen nyoba kalian bisa mengunduh mechinenya lagsung di sini :)
+	
